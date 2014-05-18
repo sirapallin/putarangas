@@ -1,0 +1,4 @@
+putarangas
+==========
+
+code phone samsung
